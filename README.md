@@ -9,4 +9,4 @@ meu nome é _Leticia Eduarda Vanelli_
 - ### da uma passada na minha conta do instagram⤵️
 
 - @vanelli_2.0
-- 
+- beijinhos S2
